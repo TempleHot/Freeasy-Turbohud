@@ -4,6 +4,7 @@
 但外国人都用的是免费TH，所以这里也给国人提供一个简单的TH。<br/>
 <br/>
 请关注新浪微博用户名TurbuHUD，注意是bu。https://weibo.com/6628136122/<br/>
-这里以后可能会放工程文件，但主要进度会在微博放出。<br/>
-第一版F-TH：https://pan.baidu.com/s/1tvf3IsJQX09HQmL0fSzvDg<br/>
+也可以关注QQ群，日常交流可以在此。820622023<br/>
+这里以后可能会放工程文件，但主要进度会在QQ群放出。<br/>
+度盘F-TH：https://pan.baidu.com/s/1tvf3IsJQX09HQmL0fSzvDg<br/>
 </div>
